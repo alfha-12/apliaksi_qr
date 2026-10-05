@@ -1,0 +1,1 @@
+# apliaksi_qr
